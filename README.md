@@ -214,4 +214,4 @@ The Crew is available as a complete free version with all features and updates i
 Experience the world of entertainment like never before—download The Crew now and enjoy all its amazing features completely free!
 
 ---
-**Last updated:** 2026-10-04 10:57:13 UTC
+**Last updated:** 2026-10-04 15:43:31 UTC
